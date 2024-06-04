@@ -1,0 +1,2 @@
+# yamaha
+semakin di depan
